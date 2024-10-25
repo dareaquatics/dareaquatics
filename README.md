@@ -1,3 +1,3 @@
-**DARE Aquatics GitHub**
+**DARE Aquatics**
 
 https://dareaquatics.com
